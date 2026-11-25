@@ -1,0 +1,1 @@
+# Yfinance_interdisciplinar3b
